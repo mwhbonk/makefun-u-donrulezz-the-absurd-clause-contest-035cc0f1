@@ -1,0 +1,1 @@
+# makefun-u-donrulezz-the-absurd-clause-contest-035cc0f1
